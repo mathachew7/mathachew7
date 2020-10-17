@@ -1,4 +1,4 @@
-### Namaste, I'm Subash - [ysubash] [website]👋
+### Namaste 🙏 , I'm Subash - [ysubash] [website]👋
 
 ## Student/Developer/Entrepreneur/Athlete!
 
