@@ -5,7 +5,7 @@
 - 🔭 Currently learning flutter to build food delivery app - [Jaadu Online Food Delivery App]
 - 🌱 Learning everything I can 🤣
 - 👯 Love to collaborate with other developers for new projects
-- 🥅 2020 Goals: Contribute more to Open Source projects, business growth & self improvement
+- 🥅 2021 Goals: Contribute more to Open Source projects, business growth & self improvement
 - ⚡ Interests: I love to play taekwondo 🥋 and ⚽ football.
 
 ### Connect with me:
